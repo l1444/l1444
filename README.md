@@ -1,7 +1,7 @@
 # L14ms111
 
 ![visiteurent](https://komarev.com/ghpvc/?username=L14ms111&color=ff7f50)
-![](https://img.shields.io/github/stars/L14ms111?color=ff7f50&logo=github&style=flat-square)
+![](https://img.shields.io/github/stars/L14ms111?color=ff7f50&logo=github)
 
 J'ai sodomisé mon père. Il m'avait fait venir dans le salon (y avait personne) et m'a engueule car je squatte la maison et je foutais rien de ma vie. Soudainement, je sais pas ce qui m'a pris (surement au fait que je me suis pas astiqué depuis 3 jours), je lui ai pincé son gros cul flasque et lui ai dis que c'est moi le nouveau papa de cette maison. Il m'a fixé des yeux puis s'est abaissé au niveau de mon pantalon et l'a fait détacher. Il a descendu ensuite mon caleçon, sous mes yeux choqués mais pas non plus dégoutés. Il m'a fait une pipe du turf, la meilleure que j'ai eu. Il s'est ensuite mis contre le canapé et je luis ai arraché son gros futal d'obèse. Je l'ai sodomise comme jamais, même quand j'espionnais mes parents en train de niquer je n'ai jamais autant jouit, c'était magnifique franchement. En plus d'habitude je lui lechais juste l'anus après son boulot pour le faire décompresser après sa dure journée de travail, je pensais pas que ça allait aussi loin! J'ai ensuite retiré ma bite (couverte de nutella, miam) et du gaz très bruillant en est sorti. Il avait le cul rempli ce vieux cochon!!!! J'ai ensuite tout lâché sur sa grosse barbe et on s'est rhabillé. Il vient de m'envoyer un message, il veut remettre ça a demain sinon il me vire de sa maison, je suis devenu son esclave sexuel, mais j'aime ça. Faudrait que je demande a maman d'y participer aussi, ça serait cool, même si ça va être galère de la déterrer.
 
